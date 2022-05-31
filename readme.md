@@ -1,1 +1,1 @@
-
+【  Yukikaki  by @WORDS_SCRAPER is licensed under a Creative Commons Attribution 4.0 International License.】【ctrl+↓で下に行けるぞ！】 【Feel free to use!】NYタイムズ国際版（＝NYT）とかネット記事とかアニメを見て自分がわからなかった単語を書いている、口、俗、話の区別はあまり厳密ではない
